@@ -1,1 +1,0 @@
-# scriptaim.cat
